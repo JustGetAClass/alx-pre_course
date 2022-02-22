@@ -1,1 +1,1 @@
-**Mohamed Salat** __Strong__
+My name is **Mohamed Salat**
